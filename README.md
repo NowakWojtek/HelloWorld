@@ -64,3 +64,13 @@ V 0.   B
 10
  c
 ```
+
+## 2023-06-27
+
+my first viral infection
+
+```
+ Get,ffp8u\t4wrd1ds333/‘=3/ \
+?\
+L9,0,-pl;≥][';/
+```
