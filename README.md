@@ -74,3 +74,11 @@ my first viral infection
 ?\
 L9,0,-pl;≥][';/
 ```
+
+## 2024-05-20
+
+After walk with my grandmother.
+```
+CcCCCCCc           vgfwd wwww/o’/o/‘o/o/o/.jjjjtt dgnddhygeene
+  ///;. ghgfw fghhdsdhl;.n can bnvx`
+```
